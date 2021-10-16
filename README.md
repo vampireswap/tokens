@@ -1,0 +1,1 @@
+# Vampireswap Assets Info
